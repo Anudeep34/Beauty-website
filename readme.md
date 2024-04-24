@@ -1,6 +1,6 @@
-# <img src="https://res.cloudinary.com/crunchbase-production/image/upload/c_lpad,h_170,w_170,f_auto,b_white,q_auto:eco,dpr_1/v1438842049/auk7ayohemudyedrknde.png" width="25px"/> Frank Body Clone
+# <img src="https://res.cloudinary.com/crunchbase-production/image/upload/c_lpad,h_170,w_170,f_auto,b_white,q_auto:eco,dpr_1/v1438842049/auk7ayohemudyedrknde.png" width="25px"/> BVALENTIN
 
-<p>Frank Body is an e-commerce company, It sells beauty, and Makeup products across websites, mobile apps and 100+ offline stores. In 2020, I don’t take myself too seriously but I’m serious about the right thing.
+<p>BVALENTIN is an e-commerce company, It sells beauty, and Makeup products across websites, mobile apps and 100+ offline stores. In 2020, I don’t take myself too seriously but I’m serious about the right thing.
 That's why over 6 million babes have fallen in love with me.</p>
 
 <p>Several years ago in a coffee shop, five friends had a drink and an idea: a humble coffee scrub. Their mission was to remove the hyperbole that saturates the skincare industry and make clean skincare fun. So they called me frank and I've been getting babes dirty ever since.
